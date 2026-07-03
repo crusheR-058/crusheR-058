@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm OM DEVI SHANKAR
-**A passionate Cloud Engineer || GenAI (Generative AI) Specialist || AI Researcher**
+**A passionate Cloud Engineer || GenAI (Generative AI) Explorer || AI Researcher**
 
 Email Me 👉 ✉️ **ods19095@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
